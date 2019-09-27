@@ -1,0 +1,19 @@
+# Reflective: Print I
+
+#### Matthew Cook
+
+## TITLE
+
+This week truly feels like the big jump from theory into practice. While reading Borsuk's book gave a lot of necessary context to the idea of what a "book" is, I had been itching to work with the technology since it had been teased on the first day.  Reading (and watching) the material for this week was a bit foreign to me, as most of the material referred to equipment I had never quite seen, much less handled, prior to the reading. However, when we first started manipulating the type in class, a lot of the concepts began to click.
+
+The first comes with an idiom, "don't mix up your 'p's and 'q's". I had a lot of trouble with not only 'p's and 'q's, but also the 'b's vs. 'd's and 'u's vs. 'n's. It was exciting to be an amateur typesetter. This leads me into one of the points that struck home with me from last week regarding the career path of a typesetter. Professor Cordell said that in the past, the first job in a print shop would be fetching things that were needed for more experienced employees, then becoming an apprentice setting type, then becoming an expert who may be tasked with running the whole operation. Today on the phone, I brought up how we have been setting type with my mother, who said (uncertainly) that she thinks my great-grandfather had worked in a printing shop in Indiana. She said "I think he was just setting type", and I thought back to this conversation, wondering if he had worked as an apprentice setting type and eventually became an expert printer. I wish there were a better way to learn about my family's history such as that anecdote, and that further displays our need for more books. :stuck_out_tongue:
+
+As we've begun to set type, I can't help but continue to think about its history. When I was inquiring about the wooden *furniture* we were using to set the type, I asked Kenny how they decided to size it. He said there were a few standards, but he most interestingly said that those wooden pieces had been made ages ago. When I looked around the room, I thought about the aggregate age of the most complex technology (printing presses) to the least complex technology (coins, furniture, and type). Everything surrounding me was ancient, and must have been maintained beautifully to still be functional now. So many presses, coins, pieces of furniture, and type, must have been thrown out, and that makes me wonder as to if there will be a cyberpunk-esque revival of the creation of printing products, such as those I just mentioned. If so, will they be accepted as new pieces, or will they be discarded as mere replicas? I think that will be fascinating to see as printing presses continue to see a revival.
+
+The last point I'd like to catalyze from this week goes off of that last concept. What current technology will we see revive in the future even though it has been outclassed?  I doubt we will ever see a return of old Apple 2 computers like the one we had in the classroom this Thursday, as they are bulky and ugly (in my opinion). However, could we see a revival of things like BlueTooth or VCRs? I don't know. They seem silly and inefficient now, but who knows if they'll have a Romantic, nostalgic connotation in the future. I'm excited to see that cycle occur in my lifetime, even though I recognize it will probably feel weird.
+
+One last point I'd like to make is that it is hard to separate what I've learned in this most recent week, Print II, from what I learned last week, Print I. I am going to try to add a reflective for Print II either today or tomorrow so that I can catch up, and reflect on a week as soon as the week is over while it's fresh in my mind. Please forgive this paragraph's departure from conceptual discussion, as I hope it makes my reflective process more clear. Hasta la proxima semana!
+
+
+
+  

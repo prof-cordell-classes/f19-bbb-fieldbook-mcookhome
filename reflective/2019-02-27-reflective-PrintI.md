@@ -2,7 +2,7 @@
 
 #### Matthew Cook
 
-## TITLE
+## The Cyclical Acceptance of Technology
 
 This week truly feels like the big jump from theory into practice. While reading Borsuk's book gave a lot of necessary context to the idea of what a "book" is, I had been itching to work with the technology since it had been teased on the first day.  Reading (and watching) the material for this week was a bit foreign to me, as most of the material referred to equipment I had never quite seen, much less handled, prior to the reading. However, when we first started manipulating the type in class, a lot of the concepts began to click.
 

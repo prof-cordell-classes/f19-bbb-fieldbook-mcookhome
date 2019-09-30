@@ -1,0 +1,13 @@
+# Reflective: Print II
+
+#### Matthew Cook
+
+## The Personality of Text
+
+Though we had set type the week before, this was the first week that we actually got to use the press. It was fascinating to go through the whole process, and this first paragraph will be dedicated to that experience. First, we put the *type* in the *composing stick*, along with the *leading*. For my printing job, I chose a script typeface, which brought up an interesting situation that I hadn't considered prior. Some of the script letters had parts that overlapped onto other pieces of type, so they wouldn't just be contained in the metal rectangle they were allotted on their piece of type. Also, I thought it was very cool how the metal used to make the type is able to withstand pressure for such a long duration. The materials scientists behind type must have made a bunch of changes to optimize the material. After I had composed my job, we put it in the *furniture* with the *coins* and then mounted it on the press. I got to operate it with my foot on the pedal and hand on the wheel! It was really cool.
+
+A dichotomy we explored this week was creativity versus function. During our discussion of all the typefaces we had each researched, I brought up how I'd found a Reddit discussion arguing about the font's illegibility. Is it permissible for the creator of a font to intentionally reduce legibility in favor of aesthetics? An interesting point that was made was that, instead of being a dichotomy, creativity and function are intrinsically tied together, where the artistic choices of the creator of the font are part of the function of the message conveyed by the typeface. I think I err on the side of type needing to be legible, but I can understand how having to deliberately read something in a specific typeface could be used for emphasis.
+
+The last topic I'd like to touch on is the subject of emotion in a typeface. In class, we discussed how a typeface can almost universally evoke the same emotions from readers. It could be a frilly, relaxed typeface or a staid, serious one. It interested me how the shapes of the letters affect that, and Lupton said that the characteristics of the typeface at their core create emotions. Lupton particularly pointed out how *x-heights* affect emotion drastically, with large x-heights seeming bubbly and smaller ones seeming more serious. I wonder how typefaces will evolve in the next decade or century, and I wonder if convention will keep typefaces we know around. Otherwise, what will typefaces of the future look like, and how will they have changed to better serve humanity?
+
+  

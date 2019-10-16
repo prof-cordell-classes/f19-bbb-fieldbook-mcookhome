@@ -1,0 +1,11 @@
+# Reflective: Binding
+
+#### Matthew Cook
+
+## TITLE
+
+I found *Baxter's Procustes* much more interesting once I realized it was Chesnutt's satire of what he imagined these sorts of clubs to be like since he wasn't allowed to join because of his race. The section in which Baxter so eloquently describes their smoking ritual, down to each painstaking detail shows how he imagined these club members to be. The fact that none of them had the gumption to unwrap the work of beauty that was Baxter's book embodies the common saying "Don't judge a book by its cover". It is interesting to consider the book as a work of art, in which case restraining from opening it would be justified. However, if you are to talk about the book's contents, you should have read it to discuss the text. I find it duplicitous to discuss a text you haven't read as if you have read it.
+
+In class, the binding exercise was entertaining. It was, surprisingly, more or less how I imagined it was going to be done. There were no extreme surprises in that simple binding. I did enjoy the tools used in binding the chapbook. For example, the stand (I forget its name) on which the book sat while using the awl was very form-fitting and would work with almost all codex-like forms of the book. I also liked how the guillotine trimmed the paper to make them all the width of the book. As a child, my dad had one of those guillotines, but we never used it for the purpose of binding books. We always used it to format my dad's newsletter before sending it out.
+
+One last fascinating thing that we discussed in class was how books used to be consumed. It hadn't clicked that books were widely issued partially and periodically to subscribers over intervals of time. The only text I knew of that had released in that manner was *The Count of Monte Cristo*. I now realize that that was a commonplace thing, and its implications are wild. The fact that books came in parts that had advertisements on either side to make money is bizarre to me, and I'd love to see that in the archives today if possible. Also, it means that we consume TV today much in the way that people consumed books in days of old: we consume it serially, wait for the next episode(/chapter) to release, and find advertisements bookending our consumption. That parallel astounds me.

@@ -1,0 +1,11 @@
+# Reflective: 3D Printing
+
+#### Matthew Cook
+
+## title
+
+This week's discussion was the first to really push my definition of a *book* to its limits. I do not think I agree that most 3D printed objects are books. In particular, I do not think that the mic jammer is a book. I would classify it as an object, but in what way does it provide information to anyone? If anything, it in a way removes information from the world by de-sensing the phones microphone. I also don't think I think that Lincoln's life mask is a book. I think that opinion may be more because there are so many better words to use to qualify what that object is that I think using the word "book" to describe it would be less than apt.
+
+Speaking of Lincoln's life mask and its 3D printed copies, I discussed my reading prep question about the significance of copies with my group in class. We actually came to an answer about it that I liked, with Larissa saying that a book's significance generally correlates to a high number of copies, but a book having a large amount of copies does not relate to its significance. For example, some textbooks are extremely widely produced yet have no real cultural significance, whereas most significant texts will be copied at a high rate. However, I'm sure there are some counterpoints to this theory. For example, do ancient books with very few copies lack significance? Maybe they did at the time, but I imagine in most cases that they are extremely significant now.
+
+Lastly, one of my favorite parts about this class has been learning about new parts of campus that I haven't had too much exposure to prior. This week, we learned about 3D printing and visited the 3D printing studio in Snell to support that learning. I had walked by it in the past but I had never stopped in it. I really enjoyed our visit there. Other places I had never known about before include the Archives in Snell and the Huskiana Press. I had never been to the basement of Snell before this class and now I've been about three times! Each time, I've either seen cool new books or a presentation regarding them. The Huskiana Press is another part of campus I knew nothing of before this semester, and I'm glad I've gotten to take advantage of this opportunity before graduating from Northeastern.
